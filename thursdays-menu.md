@@ -8,3 +8,6 @@ A juicy grilled Black Angus quarter-pounder with American cheese and plenty of b
 
 ## Fried Green Tomatoes
 OK, it’s from 1991, but we bet you can’t resist these tart, juicy slices of cornmeal-crusted Southern bliss.
+
+## Japanese rolls
+Many more creem chees, lightly salted salmon, caviar of flying fish, mackerel, smoked eel, Nori, rice, soy sauce.
